@@ -1,1 +1,1 @@
-# Sagesse-islamique
+# sagesse-islamique
